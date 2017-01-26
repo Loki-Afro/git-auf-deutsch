@@ -8,6 +8,7 @@ der oft seltsam klingenden Konstruktionen.
 Git auf Deutsch schafft Abhilfe!
 
 ## Vorschläge
+Mach Sachsen wieder groß
 
 Es folgen zwei Tabellen mit Vorschlägen für den täglichen Gebrauch.
 
